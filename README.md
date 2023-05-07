@@ -1,3 +1,4 @@
 # sowmya
 my nm is sm
-lalitha is my friend
+lalitha is not my friend and devil
+she is very stupiud buffalo
